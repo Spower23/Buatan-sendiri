@@ -1,0 +1,2 @@
+# Buatan-sendiri
+Parah bogel
